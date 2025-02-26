@@ -7,3 +7,4 @@ Hello! This is a little corner of the world I've carved out just for us, fellow 
 - fynnlukah (also known as "fynn")
 - Youssef (undertale nerd)
 - okcoder1 (i guess... i'm... ok?)
+- ~ajhalili2006
