@@ -7,7 +7,6 @@ Hello! This is a little corner of the internet I made just for us, fellow DevCre
 
 #### Members:  
 - Catspin (Created the roll call)  
-- PlOszukiwacz (100% ~~not~~ a cat)  
 - Lezetho (I'm just a chill guy)  
 - uhAlexz (I'm in your walls 🥰)  
 - fynnlukah (Also known as "Fynn")  
